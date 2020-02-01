@@ -10,3 +10,4 @@
 8. Thou shalt not use this spec to justify your shitty behavior.
 9. Thou shalt not post a picture of your coffee every morning on social media.
 10. Thou shalt not leave Legos on the floor.
+11. Thou shalt not drink and drive.
